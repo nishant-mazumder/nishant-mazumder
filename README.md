@@ -2,7 +2,7 @@
 
 **A passionate Software Engineering Student || DSA Practitioner || MERN Stack Developer from India**
 
-Email Me 👉 [nishantmazumder8@gmail.com](mailto:nishantmazumder8@gmail.com) For Opportunities, Technical Collaboration, or Anything Else. 😊😊
+Email Me 👉 [nishantmazumder8@gmail.com](mailto:nishantmazumder8@gmail.com) For Opportunities, Technical Collaboration, or Anything Else.
 
 ---
 
